@@ -1,0 +1,1 @@
+O curso está sendo muito interessante para quem está iniciando a carreira na área de desenvolvimento web agora. A didática - os materiais, as aulas, os exercícios, as lives e os webinars - está superando todas as expectativas que eu havia criado sobre o curso.
